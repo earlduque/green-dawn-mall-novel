@@ -39,15 +39,3 @@ Start with [Chapter 1 — Top Floor](chapters/01-part-one-level-one/01-top-floor
 The *Card* column marks chapters where a tarot draw at the table shaped the chapter.
 
 **POV ledger:** Alex 4 · Stacy 3 · Hank 3 · Burt 2 · Djan 2. **Volume Two opens owing Burt and Djan.**
-
----
-
-## WHAT THIS BOOK IS DOING
-
-Three structural commitments, made once so they don't have to be re-argued:
-
-**It's a serial, not a novel.** The campaign is unfinished, so Volume One deliberately ends **un-climaxed** — the Screening Room is a promise, not a payoff. Nothing in these fourteen chapters spends the ending. Genuine closure lands at chapters 6, 10 and 13 so the reader gets a breath and learns to trust the book; there is not one unbroken cliffhanger in it.
-
-**Nothing contradicts the log; everything else is invented.** Every beat the table played is here. The interiority, the wants and wounds, the compression, the reordering, and the retro-foreshadowing of three items that were random rolls at the table — those are the adaptation. Every departure is deliberate and recorded, because the book has to stay consistent with **itself**, not with the campaign.
-
-**The refusal is the spine.** In Chapter 12 the crew finds a working exit onto the real parking lot and closes it, because Jordan can't use it. Everything before it seeds that choice and everything after it charges them for it. It is underplayed on purpose.
