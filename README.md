@@ -2,9 +2,9 @@
 
 A prose novelization of the *Green Dawn Mall* tabletop campaign, adapted from the session logs.
 
-**Volume One · Sessions 1–6 · 14 chapters + 3 interludes · ~41,000 words**
+**Complete · Sessions 1–8 · 22 chapters + 3 interludes + a coda · ~65,000 words**
 
-Five journalists from a small local paper go into a shopping mall to find their missing intern, and start going down. Volume One ends at the Screening Room doors, because that is where the table stopped. **The campaign is ongoing and this book is designed to be appended to.**
+Five journalists from a small local paper go into a shopping mall to find their missing intern, and start going down. The campaign is finished, and so is the book: it runs all the way down to the Screening Room, and back out to the parking lot.
 
 Start with [Chapter 1 — Top Floor](chapters/01-part-one-level-one/01-top-floor.md), or use the table below.
 
@@ -35,7 +35,17 @@ Start with [Chapter 1 — Top Floor](chapters/01-part-one-level-one/01-top-floor
 | 13 | [Employee of the Month](chapters/04-part-four-level-four/13-employee-of-the-month.md) | | Hank | 2,791 | Five stickers, five hands, no backing peeled | **Closure** + new problem |
 | 14 | [Come Down](chapters/04-part-four-level-four/14-come-down.md) | | Alex | 3,089 | Three hands on the doors, and the lowest pressed hardest | Promise + scene-cut |
 | ‣ | [*Interlude · Jordan*](chapters/04-part-four-level-four/ZZ-jordan.md) | | Jordan | 780 | *Have a green day.* | — |
+| | **PART FIVE — LEVEL FIVE** | | | | | |
+| 15 | [Closed to the Public](chapters/05-part-five-level-five/15-closed-to-the-public.md) | | Djan | 2,933 | He did not tell anyone | Foreboding |
+| 16 | [The Ones Who Stopped](chapters/05-part-five-level-five/16-the-ones-who-stopped.md) | | Burt | 2,927 | A mannequin's head in a silver hand, nodding *yes* | **Closure** + new problem |
+| 17 | [Five Seconds](chapters/05-part-five-level-five/17-five-seconds.md) | | Hank | 2,806 | *"...what?"* — and Hank turns around | Promise |
+| 18 | [You Came Down](chapters/05-part-five-level-five/18-you-came-down.md) | | Djan | 2,938 | *Hi, Burt* — and the red light still on | **Closure** + new problem |
+| 19 | [Nailed It](chapters/05-part-five-level-five/19-nailed-it.md) | | Stacy | 2,740 | Where there had been a fist on a door, nothing | Cliffhanger |
+| 20 | [For Jordan](chapters/05-part-five-level-five/20-for-jordan.md) | | Hank | 2,579 | The lock turning over by itself | Dangling cause |
+| 21 | [Slightly Used](chapters/05-part-five-level-five/21-slightly-used.md) | | Alex | 2,580 | A brick wall, a smear of paint, a receipt | **Closure** |
+| 22 | [Everything Must Go](chapters/05-part-five-level-five/22-everything-must-go.md) | | Burt | 2,547 | *Is it weird that I'm starving?* | Scene-cut on image |
+| ‣ | [*Coda · Jordan*](chapters/05-part-five-level-five/ZZ-jordan.md) | | Jordan | 1,330 | *Me too.* | — |
 
 The *Card* column marks chapters where a tarot draw at the table shaped the chapter.
 
-**POV ledger:** Alex 4 · Stacy 3 · Hank 3 · Burt 2 · Djan 2. **Volume Two opens owing Burt and Djan.**
+**POV ledger:** Alex 5 · Hank 5 · Stacy 4 · Burt 4 · Djan 4.
