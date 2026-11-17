@@ -199,3 +199,9 @@ He handed them out over the counter, one each, and got them in the right hands w
 Nobody argued. Stacy said thank you and meant it, and Burt shook the kid's hand and the kid shook back, and Djan looked at the sorted piles for longer than they were worth, and Alex was already turning for the door and the desk and the wall behind it.
 
 They came out under the chime into the paint smell and the light with no place it came from, five of them, holding small green cards by the edges, and not one of the five had peeled the backing off yet.
+
+<!-- nav -->
+
+---
+
+[← 12 · It's Missing Something](12-its-missing-something.md) · [Contents](../../README.md) · [14 · Come Down →](14-come-down.md)

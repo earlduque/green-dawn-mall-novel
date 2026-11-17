@@ -28,3 +28,9 @@ I am going to get in the lift.
 It smells of plastic. There's music somewhere, a little piano thing, quite cheerful, quite bad. There are more buttons than the building has floors, which is the single most interesting fact I have encountered in eleven months of employment.
 
 I'll find it in a week. Two at the outside.
+
+<!-- nav -->
+
+---
+
+[← 03 · It's All the Same Room](03-its-all-the-same-room.md) · [Contents](../../README.md) · [04 · don't →](../02-part-two-level-two/04-dont.md)

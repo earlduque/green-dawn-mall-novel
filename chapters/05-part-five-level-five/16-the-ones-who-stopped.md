@@ -275,3 +275,9 @@ They had found the kid. They had a key. The key was five seconds long.
 Burt had moved a lot of things in five seconds in his life. He had never once moved five people.
 
 Alex held the head out in front of her in the silver hand, and it went on nodding at the doors. Yes. Yes.
+
+<!-- nav -->
+
+---
+
+[← 15 · Closed to the Public](15-closed-to-the-public.md) · [Contents](../../README.md) · [17 · Five Seconds →](17-five-seconds.md)

@@ -167,3 +167,9 @@ Jordan came back across the lines toward them, not quickly, the arm swinging a l
 "Is it weird that I'm starving?"
 
 Burt was already unzipping the backpack.
+
+<!-- nav -->
+
+---
+
+[← 21 · Slightly Used](21-slightly-used.md) · [Contents](../../README.md) · [Coda · Jordan →](ZZ-jordan.md)

@@ -199,3 +199,9 @@ She would rather have paid for it on the stairs. She could not have told anybody
 In the middle of the floor a white convertible turned on a platform.
 
 It was showroom-clean. There was a spotlight on it, hung on nothing, and nothing else in this room had a light of its own. The platform went round at the speed of a thing that had been going round a long time. Nobody stood beside it with a folder. Nobody was watching it. It came about until the hood was pointing at them, and kept going, and showed them the white side of it, and the back of it, and the other side, and then the hood again.
+
+<!-- nav -->
+
+---
+
+[← Interlude · Jordan](../02-part-two-level-two/ZZ-jordan.md) · [Contents](../../README.md) · [08 · The Promenade of Vows →](08-the-promenade-of-vows.md)

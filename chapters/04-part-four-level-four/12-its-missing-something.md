@@ -247,3 +247,9 @@ At the back of the shop the wall had a door on it. Five panels, oak, three hinge
 The handle was a brass shine on a wall, and under the handle was a small painted shadow, laid on by somebody who cared, falling the way no light in this building had ever fallen.
 
 She stopped in the doorway and looked at it. Then she went out into the light with no source, and she was the last one to stop looking.
+
+<!-- nav -->
+
+---
+
+[← 11 · The Unfinished Gallery](11-the-unfinished-gallery.md) · [Contents](../../README.md) · [13 · Employee of the Month →](13-employee-of-the-month.md)

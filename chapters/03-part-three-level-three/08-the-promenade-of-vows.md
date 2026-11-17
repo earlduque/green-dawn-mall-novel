@@ -178,3 +178,9 @@ Burt was looking down the near corridor at a run of storefronts with boards acro
 Nobody argued. Hank picked the camera up off the carpet on the way past and got it onto his shoulder, and they crossed the plaza toward the doors with the cold light behind the glass, in a loose diamond — Burt out front under the yellow brim calling the walk, Stacy on his shoulder, Djan wide, Hank a step behind with the bags balanced right for once. It was going better than anything had gone since the elevator. Somebody laughed at something Burt said about the ribbon.
 
 Alex was last, and at the doors she turned her head and looked back at the car, still turning under its light with the key on the platform beside it, and then she came in with the rest of them.
+
+<!-- nav -->
+
+---
+
+[← 07 · Sixty Feet](07-sixty-feet.md) · [Contents](../../README.md) · [09 · Ninety-Nine Thousand →](09-ninety-nine-thousand.md)

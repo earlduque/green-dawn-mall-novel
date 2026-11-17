@@ -197,3 +197,9 @@ Nobody said the next part. It was very quiet, apart from the piano, which had st
 Then the car settled, the way a lift does, that half-inch drop and lift that tells your knees you've arrived. Alex put her hand flat on the wall behind her without deciding to.
 
 The doors opened, and the smell came in first — plastic, hot, everywhere, a wall of it, the whole building's worth — and it got there a full second ahead of the light.
+
+<!-- nav -->
+
+---
+
+[Contents](../../README.md) · [02 · The Atrium of Screens →](02-the-atrium-of-screens.md)

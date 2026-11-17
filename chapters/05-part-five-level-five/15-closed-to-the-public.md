@@ -231,3 +231,9 @@ On the ceiling screen, five small people were walking away from a woman in a gre
 Behind them, small, at the far edge of the frame, the woman's head was tilted up too.
 
 He did not tell anyone.
+
+<!-- nav -->
+
+---
+
+[← Interlude · Jordan](../04-part-four-level-four/ZZ-jordan.md) · [Contents](../../README.md) · [16 · The Ones Who Stopped →](16-the-ones-who-stopped.md)

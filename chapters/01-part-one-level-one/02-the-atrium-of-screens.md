@@ -211,3 +211,9 @@ Held it there. Panned along it. Went down another few steps, and stopped again, 
 Then the head went below the level of the rail and the picture had nobody in it.
 
 Nobody in the room said anything. In the corner of the screen the numbers kept going, fifteen minutes behind an afternoon three days gone, and every other screen on that wall was showing a mall that had already finished happening, and there was not one thing anywhere in that room that showed them where they were standing.
+
+<!-- nav -->
+
+---
+
+[← 01 · Top Floor](01-top-floor.md) · [Contents](../../README.md) · [03 · It's All the Same Room →](03-its-all-the-same-room.md)

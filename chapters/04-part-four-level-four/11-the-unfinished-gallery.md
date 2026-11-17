@@ -194,3 +194,9 @@ They stood in a row and looked at it, and one of them let out a breath, and ther
 Then the lead one laid his brush across the tray, and wiped two fingers on his apron, and turned around, and looked directly at the five of them — the first time on Level Four that anybody had.
 
 "It's missing something."
+
+<!-- nav -->
+
+---
+
+[← 10 · Fault](../03-part-three-level-three/10-fault.md) · [Contents](../../README.md) · [12 · It's Missing Something →](12-its-missing-something.md)

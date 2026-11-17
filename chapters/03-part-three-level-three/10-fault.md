@@ -269,3 +269,9 @@ And above the door the board changed. Not both of the numbers. One of them, quie
 The door stood open under the sign, with Hank's boot in it.
 
 Burt got the pack up on both shoulders, and counted them off — five — and walked toward it.
+
+<!-- nav -->
+
+---
+
+[← 09 · Ninety-Nine Thousand](09-ninety-nine-thousand.md) · [Contents](../../README.md) · [11 · The Unfinished Gallery →](../04-part-four-level-four/11-the-unfinished-gallery.md)

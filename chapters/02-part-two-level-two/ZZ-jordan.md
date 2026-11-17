@@ -44,3 +44,9 @@ Only the right one. Only the palm and the inside of the fingers, and it is not a
 It is probably nothing. I have been carrying a camera in it for eleven days.
 
 Tomorrow: Level Three, and then Four.
+
+<!-- nav -->
+
+---
+
+[← 06 · The Library Only Checks In](06-the-library-only-checks-in.md) · [Contents](../../README.md) · [07 · Sixty Feet →](../03-part-three-level-three/07-sixty-feet.md)

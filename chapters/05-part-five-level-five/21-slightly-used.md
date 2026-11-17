@@ -147,3 +147,9 @@ She turned round.
 Brick. Red brick, the back wall of a building, the mortar gone dark in the joints, a downpipe, a stain down the face where something had leaked for years. At about the height of a door handle there was a smear of paint on it, a little green and a little white, about the size of a thumb.
 
 Alex stood and looked at the wall, with the receipt in her taped hand.
+
+<!-- nav -->
+
+---
+
+[← 20 · For Jordan](20-for-jordan.md) · [Contents](../../README.md) · [22 · Everything Must Go →](22-everything-must-go.md)

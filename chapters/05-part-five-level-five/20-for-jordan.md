@@ -167,3 +167,9 @@ He turned round to look back through the door.
 It stood open in a brick wall, and through it the Screening Room was a long dark box of glass with a square of white at the near end. Alex was in it. Last, a step inside the frame, the head under her arm and the taped hand at her side, her mouth still going with the count.
 
 Behind her, across three hundred feet of dead screens, came the small sound of the lock turning over by itself.
+
+<!-- nav -->
+
+---
+
+[← 19 · Nailed It](19-nailed-it.md) · [Contents](../../README.md) · [21 · Slightly Used →](21-slightly-used.md)

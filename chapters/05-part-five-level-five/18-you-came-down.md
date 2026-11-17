@@ -181,3 +181,9 @@ He looked up at the man holding him, the hard hat and the backpack and the face 
 "Hi, Burt."
 
 The right arm was still up at forty-five degrees. Still part of the camera. And the little red light was still on, and it was pointed at Djan.
+
+<!-- nav -->
+
+---
+
+[← 17 · Five Seconds](17-five-seconds.md) · [Contents](../../README.md) · [19 · Nailed It →](19-nailed-it.md)

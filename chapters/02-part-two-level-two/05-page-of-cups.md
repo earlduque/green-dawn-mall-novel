@@ -275,3 +275,9 @@ The journal was where he had gestured, on the counter beside the phone. A hardba
 Alex put both hands behind her back, the taped one and the other one, and looked at it.
 
 Somebody had walked in here while the only person in the room was facing the shelves, and set that down, and not stayed long enough to straighten it, and gone.
+
+<!-- nav -->
+
+---
+
+[← 04 · don't](04-dont.md) · [Contents](../../README.md) · [06 · The Library Only Checks In →](06-the-library-only-checks-in.md)

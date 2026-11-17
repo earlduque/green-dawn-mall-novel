@@ -216,3 +216,9 @@ At the far end of the shop somebody was shelving. A figure in a hood, back to th
 There was a counter along the left wall with a pad and a pen on it and a stool pushed in.
 
 The phone on the counter began to ring.
+
+<!-- nav -->
+
+---
+
+[← Interlude · Jordan](../01-part-one-level-one/ZZ-jordan.md) · [Contents](../../README.md) · [05 · Page of Cups →](05-page-of-cups.md)

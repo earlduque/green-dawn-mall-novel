@@ -95,3 +95,9 @@ I tell her I will.
 > **Resolution:** *Customer satisfied.*
 >
 > *Me too.*
+
+<!-- nav -->
+
+---
+
+[← 22 · Everything Must Go](22-everything-must-go.md) · [Contents](../../README.md) · *The End*

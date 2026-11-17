@@ -233,3 +233,9 @@ He turned and started back.
 Both teams stood bolt upright.
 
 All of them at once, mid-stride, mid-sweep, brooms hanging, the two coaches at the boards coming up off their clipboards in the same instant, and every opaque visor in the building turned and stayed turned, and not one of them moved again.
+
+<!-- nav -->
+
+---
+
+[← 08 · The Promenade of Vows](08-the-promenade-of-vows.md) · [Contents](../../README.md) · [10 · Fault →](10-fault.md)
