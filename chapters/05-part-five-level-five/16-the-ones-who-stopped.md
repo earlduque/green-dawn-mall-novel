@@ -58,11 +58,11 @@ Burt folded the top down. "Well," he said. "Offer stands."
 
 He put it away.
 
-Alex had stayed standing. "We're looking for someone," she said. "Glasses. Fair hair. A camera they don't put down."
+Alex had stayed standing. "We're looking for someone," she said. "Glasses. Fair hair. A camera he doesn't put down."
 
-The man with the tie answered, still looking at the concrete. "Three days ago," he said. "Came down the escalator with it in their hand. Walked out there." His chin moved, very slightly, toward the plaza and the far end of it. "That's all."
+The man with the tie answered, still looking at the concrete. "Three days ago," he said. "Came down the escalator with it in his hand. Walked out there." His chin moved, very slightly, toward the plaza and the far end of it. "That's all."
 
-"Did they get past her?"
+"Did he get past her?"
 
 "Don't know."
 
@@ -114,7 +114,7 @@ On the biggest set, down in the bottom corner, the numbers were running. Burt we
 
 "I know."
 
-"That's them."
+"That's him."
 
 "I know, Hank."
 

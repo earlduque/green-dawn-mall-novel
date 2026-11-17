@@ -2,13 +2,13 @@
 
 > *PLEASE STAND BY. We are experiencing technical difficulties. Do not adjust your set. Normal programming will resume shortly.*
 
-Stacy watched Jordan look down at their own right hand the way you look at a coat somebody has left on your chair. Burt had them up under one arm, the rope from Djan's knot running from Jordan's waist to Burt's belt, and Jordan's sneakers were sneakers again, and the arm was still up at its angle with the camcorder on the end of it and the little red light going.
+Stacy watched Jordan look down at his own right hand the way you look at a coat somebody has left on your chair. Burt had him up under one arm, the rope from Djan's knot running from Jordan's waist to Burt's belt, and Jordan's sneakers were sneakers again, and the arm was still up at its angle with the camcorder on the end of it and the little red light going.
 
 Her headache sat behind the left eye. It had come on at the top of the last escalator and had not moved since. The voice had come with it — far off, level, a list in a tone she could get and words she couldn't — and since Alex threw the lock it had been getting closer, a step at a time, like somebody walking toward her down a corridor with a clipboard.
 
 Behind them, a fist on the door. Then nothing for a while. Then the fist.
 
-"It won't come off," Jordan said. "I tried. The first day I tried so hard." They looked at the hand, and the hand did not look back. "If you pull on it, something breaks, and it isn't the camera."
+"It won't come off," Jordan said. "I tried. The first day I tried so hard." He looked at the hand, and the hand did not look back. "If you pull on it, something breaks, and it isn't the camera."
 
 Nobody said anything. Burt shifted his grip, gently, the way you shift a sleeping kid.
 
@@ -78,9 +78,9 @@ So she kept going.
 
 "Good evening," she said, and the voice dropped half a register and squared its shoulders, and she was at a desk with a sheet of paper she was never going to look at. "Our top story tonight. A local newspaper, eleven staff, a circulation you could seat in a car park, sends its intern to look into a rumor at an office building by the old mall."
 
-Jordan's eyes came to her. Their own eyes, wet at the rims.
+Jordan's eyes came to her. His own eyes, wet at the rims.
 
-"The intern does not come back. Five members of staff go up to the fourth floor after them and step into a lift that is not on the fire plan." A beat for the graphic. "They have since visited a bookshop that only takes returns, and an ice rink where nobody has ever scored. On Level Four they were offered a door to the car park." She let that sit, the way you let a number sit. "They closed it."
+"The intern does not come back. Five members of staff go up to the fourth floor after him and step into a lift that is not on the fire plan." A beat for the graphic. "They have since visited a bookshop that only takes returns, and an ice rink where nobody has ever scored. On Level Four they were offered a door to the car park." She let that sit, the way you let a number sit. "They closed it."
 
 Burt made a sound in his chest and turned it into a cough.
 
@@ -120,9 +120,9 @@ She did not touch the camcorder. She took Jordan's wrist in her left hand, bare,
 
 "Our correspondent is applying heat," she said. "Gently. She'd like it noted she has never in her career burned anybody who didn't have it coming."
 
-Jordan winced. Then the whole of them went loose against Burt's side, and a long breath came out of them, longer than a person ought to have in them.
+Jordan winced. Then the whole of him went loose against Burt's side, and a long breath came out of him, longer than a person ought to have in them.
 
-"Oh," Jordan said. "That's warm." Their eyes shut. "I forgot what warm was."
+"Oh," Jordan said. "That's warm." His eyes shut. "I forgot what warm was."
 
 "Our intern," Stacy told the lens, "is reporting warm."
 
@@ -144,15 +144,15 @@ Jordan's right hand was free.
 
 It was pink, and wrinkled at the fingertips like a hand that has been in the bath much too long, and it shook. On the back of it, under the little finger, there was a brown mark the size of a match head. Stacy knew whose that was. Djan had told them, at a counter in the cold, and none of them had forgotten it.
 
-Jordan flexed the fingers and watched them do it. Then they laughed — one surprised bark of it — and then they were crying, and then it was both, the way it is at airports.
+Jordan flexed the fingers and watched them do it. Then he laughed — one surprised bark of it — and then he was crying, and then it was both, the way it is at airports.
 
-Burt said, "There you go," and did not let go of them.
+Burt said, "There you go," and did not let go of him.
 
-The left arm stayed what it was. Smooth and pale to the shoulder, hanging off them, a thing that had been put on rather than grown. Stacy looked at it once and saw Alex look at it once, and everybody in that room could tell, without a word passed round, that it was not coming back.
+The left arm stayed what it was. Smooth and pale to the shoulder, hanging off him, a thing that had been put on rather than grown. Stacy looked at it once and saw Alex look at it once, and everybody in that room could tell, without a word passed round, that it was not coming back.
 
-Jordan looked at it too. Then at the five of them. Then they shrugged, with the shoulder that still worked.
+Jordan looked at it too. Then at the five of them. Then he shrugged, with the shoulder that still worked.
 
-"I'll take it," they said.
+"I'll take it," he said.
 
 *Nailed it,* said the voice in her head, and it sounded pleased.
 

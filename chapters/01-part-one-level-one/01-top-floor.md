@@ -16,7 +16,7 @@ That was five, including herself, and the reason Alex kept counting was that two
 
 ---
 
-Jordan had been theirs for eleven months. Unpaid for the first four, which was the kind of thing the paper did and then apologized for at Christmas. Jordan brought tea round in the afternoons in cups they had labeled themselves in small cramped handwriting so nobody would take the wrong one, and asked questions in editorial meetings that made the room quiet, and did not put the camera down, ever, not in the office, not at lunch, not once.
+Jordan had been theirs for eleven months. Unpaid for the first four, which was the kind of thing the paper did and then apologized for at Christmas. Jordan brought tea round in the afternoons in cups he had labeled himself in small cramped handwriting so nobody would take the wrong one, and asked questions in editorial meetings that made the room quiet, and did not put the camera down, ever, not in the office, not at lunch, not once.
 
 The last thing Jordan filed was a note. Not a story. A note, four lines, about a rumor.
 

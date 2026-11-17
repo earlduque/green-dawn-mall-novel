@@ -108,7 +108,7 @@ Djan took his hands out of his pockets.
 
 He put his hands back. He had known how it would come out while he was still asking. It had been worth asking for the shape of the answer — perfectly, said like a word on a badge.
 
-"Our friend got in," Hank said. "Blonde. Glasses. Old camera. So either you let them in or you didn't do a very good job."
+"Our friend got in," Hank said. "Blonde. Glasses. Old camera. So either you let him in or you didn't do a very good job."
 
 "Sure!" she said. "Come and try."
 

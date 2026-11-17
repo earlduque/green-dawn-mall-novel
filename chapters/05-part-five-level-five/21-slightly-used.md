@@ -54,7 +54,7 @@ The guard brought the baton up and pointed it past her. Past Alex's shoulder, th
 
 Out on the asphalt, Jordan's feet moved.
 
-They had not taken a step. Their sneakers slid, both together, flat to the ground, a few inches back toward the door, the way a box slides on a truck bed when the truck brakes. Jordan looked down at them. Burt said something Alex could not hear and set his boots and leaned back, and the rope came up off the ground and went hard as a bar, and Jordan's sneakers kept sliding anyway, slower, an inch, another inch.
+He had not taken a step. His sneakers slid, both together, flat to the ground, a few inches back toward the door, the way a box slides on a truck bed when the truck brakes. Jordan looked down at them. Burt said something Alex could not hear and set his boots and leaned back, and the rope came up off the ground and went hard as a bar, and Jordan's sneakers kept sliding anyway, slower, an inch, another inch.
 
 The edges of the door were going back to paint. She could see the brushwork coming up through the frame, the strokes lying one way along the top and another way down the sides, like a wall that has had a door painted on it and is remembering that it was a wall.
 
@@ -108,7 +108,7 @@ It was the bright one. The drawer-open bell, *ka-ching*, a happy sound, a Saturd
 
 Out on the asphalt, Jordan's sneakers stopped.
 
-Burt took two steps backward that he had not meant to take and caught himself, with Jordan against his chest and the rope gone slack between them, and Jordan put their real hand flat on his shoulder and laughed, once, like a cough.
+Burt took two steps backward that he had not meant to take and caught himself, with Jordan against his chest and the rope gone slack between them, and Jordan put his real hand flat on Burt's shoulder and laughed, once, like a cough.
 
 Paid for. Alex looked at the slip in her hand. Whether she now owned an intern was a question for later.
 

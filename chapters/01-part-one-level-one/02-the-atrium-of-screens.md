@@ -166,7 +166,7 @@ Sophia took a notebook out from under the bench, fat, rubber-banded, and let it 
 
 "Okay," Stacy said, because there wasn't a version of not saying that which was less strange, and because it had been said in the same voice as the corroded connections.
 
-Burt said, "Ma'am, we're looking for a kid. Blonde, glasses, camera they don't put down."
+Burt said, "Ma'am, we're looking for a kid. Blonde, glasses, camera he doesn't put down."
 
 "Oh, yes." Sophia closed the notebook on her finger. "Three days back. Went down the escalator." She pointed the way Alex had come from, without looking, which meant she knew the room. "Stopping and starting. Filming the walls, which I did wonder about. And no, before you ask — not since. I'd have seen. Not much comes through here."
 

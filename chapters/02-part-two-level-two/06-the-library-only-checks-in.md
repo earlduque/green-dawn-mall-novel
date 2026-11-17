@@ -18,7 +18,7 @@ Green cloth, the title stamped on the front in gold, the gold gone thin at the t
 
 A catalogue number inked on the foot of the spine. A pocket glued inside the back board with a card in it, ruled into columns for dates, every column empty. A copyright page with a printing history four lines long. And on the back board, at the top, a rectangle of pale paper where an author photograph goes, with the word *Jordan* printed in italic beneath it, and nothing in the rectangle at all.
 
-"That's their notes," Hank said. He had come up on Djan's right with the Betacam already off his shoulder. "That's the notebook. It's a spiral. It's a spiral notebook."
+"That's his notes," Hank said. He had come up on Djan's right with the Betacam already off his shoulder. "That's the notebook. It's a spiral. It's a spiral notebook."
 
 "It isn't now."
 

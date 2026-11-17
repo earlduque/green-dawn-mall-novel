@@ -46,7 +46,7 @@ That was where his head went first, standing in the noise with the floor shaking
 
 He knew what to point it at. He had known since the plaza.
 
-Jordan stood where Burt had put them, the plastic arm hanging at their side and the new pink hand held against their chest as though somebody might take it back. They were looking at the bag. Hank got the Betacam up on his shoulder and his eye into the cup and found them in the viewfinder, small and grey in the middle of the frame — the story, which was what they had been the whole time.
+Jordan stood where Burt had put him, the plastic arm hanging at his side and the new pink hand held against his chest as though somebody might take it back. He was looking at the bag. Hank got the Betacam up on his shoulder and his eye into the cup and found him in the viewfinder, small and grey in the middle of the frame — the story, which was what he had been the whole time.
 
 He pressed record.
 
@@ -62,7 +62,7 @@ The next one went. Then the next.
 
 It was like holding a bucket under a tap.
 
-Jordan looked straight into the lens. Their eyes were their own. In the viewfinder they were very small and the black was coming up behind them a screen at a time.
+Jordan looked straight into the lens. His eyes were his own. In the viewfinder he was very small and the black was coming up behind him a screen at a time.
 
 "Oh," Jordan said. "That's what it was for."
 
@@ -78,7 +78,7 @@ It went out from the camera, like a ring going out across a pond. The floor firs
 
 He wasn't watching any of it. He was kneeling with his hand on a camera, and he could feel what was going into it.
 
-First, joy. Somebody young, who had found the story of their life and could not keep still.
+First, joy. Somebody young, who had found the story of his life and could not keep still.
 
 Then terror, all at once, and a hand going cold and not opening.
 
@@ -122,7 +122,7 @@ Nobody decided to walk toward the white screen. They walked toward it anyway, be
 
 It took a while. The floor was dark glass now and showed nothing under their feet, and their footsteps came back off the far wall with a delay on them. Burt had Jordan by the good arm. Djan was a few steps ahead, the way Djan always was. Stacy walked with the bag clamped against her ribs and her heels going on the glass like somebody typing. Alex came last, with the head.
 
-Jordan stopped at the foot of the white screen and turned round and looked at the camera on Hank's shoulder. Then at him. They were smiling with the whole of their face, both sides of it, which Hank had not seen it do since the office.
+Jordan stopped at the foot of the white screen and turned round and looked at the camera on Hank's shoulder. Then at him. He was smiling with the whole of his face, both sides of it, which Hank had not seen it do since the office.
 
 "Don't develop it without me," Jordan said.
 
@@ -154,7 +154,7 @@ Nobody said how long it would hold. Every one of them had stood in front of a do
 
 Djan went first, without a word, the way he went everywhere. He was simply on the other side.
 
-Then Burt, half-carrying Jordan, one arm round their back and their good hand on his shoulder, and the rope between his belt and Jordan's waist went taut across the threshold as Jordan's feet came over last, and then went slack again outside.
+Then Burt, half-carrying Jordan, one arm round his back and his good hand on Burt's shoulder, and the rope between his belt and Jordan's waist went taut across the threshold as Jordan's feet came over last, and then went slack again outside.
 
 Stacy right behind them, in the heels, the bag held shut against her ribs with both hands.
 

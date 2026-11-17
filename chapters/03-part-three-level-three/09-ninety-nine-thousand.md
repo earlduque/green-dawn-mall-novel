@@ -130,7 +130,7 @@ One of the white team came up out of a crouch with the broom across his thighs. 
 
 "Where."
 
-"They wanted the Screening Room." He said it the way a man tells you which bus. "Heading for the Records level. I think that's where the screens are."
+"He wanted the Screening Room." He said it the way a man tells you which bus. "Heading for the Records level. I think that's where the screens are."
 
 Then he bent back down, and the game went on around him, and that was the end of it.
 

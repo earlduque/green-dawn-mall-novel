@@ -132,7 +132,7 @@ Hank got the camera up then, because that was the one thing in this store worth 
 
 "Blonde kid," Hank said. "Glasses. Camera like this but older. Would've been in here."
 
-"Oh, sure." No pause. None. "Stood right where you are for a long time. Went all the way round the racks twice, then all the way round again the other way." The eyes drifted at the wall and lagged coming back. "Kept saying the same thing while they did it. Under their breath. Kind of upset."
+"Oh, sure." No pause. None. "Stood right where you are for a long time. Went all the way round the racks twice, then all the way round again the other way." The eyes drifted at the wall and lagged coming back. "Kept saying the same thing while he did it. Under his breath. Kind of upset."
 
 "Saying what."
 
@@ -142,7 +142,7 @@ Alex had come up on Hank's left and stopped.
 
 "That's it?"
 
-"That's it. Over and over. Then they went out and down the escalator." He said it the way you'd tell somebody where the restrooms were. "That was three days ago."
+"That's it. Over and over. Then he went out and down the escalator." He said it the way you'd tell somebody where the restrooms were. "That was three days ago."
 
 "Down there," Hank said. "Level Two."
 
@@ -198,7 +198,7 @@ Djan put his hand out for it and Alex gave it over, and he held it near his ches
 
 "You're sure."
 
-"Their J's have a hook. On the tea cups." Djan turned the card over and looked at the front of it, which had nothing on it to look at. "This is somebody else."
+"His J's have a hook. On the tea cups." Djan turned the card over and looked at the front of it, which had nothing on it to look at. "This is somebody else."
 
 Hank worked it through twice, out of order, the way you cut a sequence in your head: a person had written this; the person had come into this store; the person had known enough to write *the room where everything is a screen*, which was more than the crew knew standing here; the person had put the card behind a rack where you would only find it if you knew to look; and then the person had not gone down.
 

@@ -158,7 +158,7 @@ The hood came round. The hood was deep and Alex, four rows back, could see that 
 
 "Blonde kid," Hank said. "Glasses. Camera like this, only older."
 
-"I haven't met them." The voice came out level and unbothered, a customer-service voice, a voice with a shift to finish. "They checked in a book."
+"I haven't met him." The voice came out level and unbothered, a customer-service voice, a voice with a shift to finish. "He checked in a book."
 
 "Checked in."
 
@@ -236,7 +236,7 @@ Nobody built anything on top of that.
 
 "What you're worried about." He shelved a book. "There's a Screening Room on Level Four. I'm aware of it. I've never been down."
 
-Alex came four rows closer and stopped at the end of the aisle. "You've talked to them."
+Alex came four rows closer and stopped at the end of the aisle. "You've talked to him."
 
 "I spoke to your friend."
 
@@ -244,7 +244,7 @@ Alex came four rows closer and stopped at the end of the aisle. "You've talked t
 
 "Three days ago. On that phone."
 
-"Did they sound like that?" She tipped her head back toward the counter. "Like just now."
+"Did he sound like that?" She tipped her head back toward the counter. "Like just now."
 
 The cart was pushed six inches along the carpet. "I couldn't say."
 

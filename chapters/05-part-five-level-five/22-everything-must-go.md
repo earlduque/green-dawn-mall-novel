@@ -34,7 +34,7 @@ Through the glass of the annex lobby he could see the sawhorse. Same sawhorse, s
 
 "I can, though."
 
-He let some weight off, the way you let a load down onto a pallet, a little and then a little more, his arm still round them, until Jordan's sneakers had it. Canvas sneakers, grey at the toes, laces done in a double knot. They held. They were just sneakers.
+He let some weight off, the way you let a load down onto a pallet, a little and then a little more, his arm still round him, until Jordan's sneakers had it. Canvas sneakers, grey at the toes, laces done in a double knot. They held. They were just sneakers.
 
 Djan came and undid the knot at Burt's belt. It took him one pull, because it was Djan's knot. He coiled the rope elbow to hand while the rest of them stood there, sixty feet of it going round and round, and hung the coil on his shoulder, and put his hands back in his pockets.
 
@@ -76,7 +76,7 @@ Djan looked at it longer than it needed. Alex looked at it and then at the recei
 
 All six phones went off at once.
 
-Buzzing in coat pockets, in Hank's back pocket, a chime out of Stacy's jacket, and something in Jordan's jeans that made Jordan jump like they'd been touched on the shoulder. Everybody looked down. That was a thing Burt had not seen six people do together in a long while, and it was ordinary, and he watched it.
+Buzzing in coat pockets, in Hank's back pocket, a chime out of Stacy's jacket, and something in Jordan's jeans that made Jordan jump like he'd been touched on the shoulder. Everybody looked down. That was a thing Burt had not seen six people do together in a long while, and it was ordinary, and he watched it.
 
 His own had four texts on it and a voicemail and a message telling him his storage was nearly full. The texts were people asking where he was. The time across the top of the screen said a time, and the time agreed with the sky.
 
@@ -140,21 +140,21 @@ Somebody was going to be sitting on somebody. He thought about what the law had 
 
 ---
 
-Jordan had walked out into the lot on their own.
+Jordan had walked out into the lot on his own.
 
-Burt hadn't seen them go. They were standing between two sets of white lines in the middle of all that grey, with nobody parked within forty feet of them. The plastic arm hung down at their side, smooth, and a little see-through at the fingers where the light from the cloud got into it. The other hand was up flat over their eyes, the real one, still wrinkled at the tips, holding the glare off. There wasn't much glare. They were looking at the sky anyway.
+Burt hadn't seen him go. He was standing between two sets of white lines in the middle of all that grey, with nobody parked within forty feet of him. The plastic arm hung down at his side, smooth, and a little see-through at the fingers where the light from the cloud got into it. The other hand was up flat over his eyes, the real one, still wrinkled at the tips, holding the glare off. There wasn't much glare. He was looking at the sky anyway.
 
 There was nothing up there to look at. Cloud, and the pale place where the sun was.
 
-They looked at it for a long time.
+He looked at it for a long time.
 
-Nobody went out to them. Hank had his hand on the camera and didn't lift it. Stacy had stopped touching her bag. Out past the light pole the one on the phone had their head down and was nodding at somebody who couldn't see it.
+Nobody went out to him. Hank had his hand on the camera and didn't lift it. Stacy had stopped touching her bag. Out past the light pole the one on the phone had their head down and was nodding at somebody who couldn't see it.
 
 Burt got the backpack off his shoulders, because his hands were empty and he didn't know what else to do with them. He'd come in with five chuckleheads and a snack pack nobody would touch. He set the pack on the hood of the car next to the Betacam.
 
 A car went by out on the road. Out past the light pole the phone came down, and went into a pocket, and the one holding it started back across the lot, not hurrying. A shopping cart in the corral ticked against the one in front of it in a little wind. The doors behind them opened and let out the end of a song, and closed again.
 
-Jordan took the hand down off their eyes and turned round and looked at the five of them by the car, and seemed to count them.
+Jordan took the hand down off his eyes and turned round and looked at the five of them by the car, and seemed to count them.
 
 "…We should call the paper," Jordan said.
 
@@ -162,7 +162,7 @@ Nobody moved for a second.
 
 "Yeah," Alex said. She had her phone out already. She didn't dial.
 
-Jordan came back across the lines toward them, not quickly, the arm swinging a little with each step the way a thing swings that you're carrying rather than wearing. They stopped at the front of the car and looked at the backpack on the hood, and then up at Burt.
+Jordan came back across the lines toward them, not quickly, the arm swinging a little with each step the way a thing swings that you're carrying rather than wearing. He stopped at the front of the car and looked at the backpack on the hood, and then up at Burt.
 
 "Is it weird that I'm starving?"
 

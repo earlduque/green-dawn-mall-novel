@@ -36,7 +36,7 @@ He did not care for finding out that it knew how.
 
 Jordan was in the middle.
 
-Exactly where the shop screens had put them, upright, one arm raised, small in the glare. From the door it was a figure. They walked.
+Exactly where the shop screens had put him, upright, one arm raised, small in the glare. From the door it was a figure. They walked.
 
 It took a long time. The floor lit under them a square at a time as they went, and when Djan looked down at the square he had just come off, it was showing him his own sole from underneath: the tread, a grey disc of gum he had not known about, the heel worn down on the outside the way his heels always went. Then the next square. Then the next.
 
@@ -134,7 +134,7 @@ Jordan's sneakers were going smooth. The same pale plastic as the arm, coming up
 
 Every screen in the room flickered at once, and when they came back they were all showing the same thing.
 
-Djan looked up. The ceiling, the walls, every column, the strip in the door frame: Jordan, from above, standing very still, and five people around them with their hands out, from above. Thousands of them. The one in the middle not moving.
+Djan looked up. The ceiling, the walls, every column, the strip in the door frame: Jordan, from above, standing very still, and five people around him with their hands out, from above. Thousands of them. The one in the middle not moving.
 
 "I'm sorry," Jordan said. It had gone thin again. "I'm so tired. I haven't — I don't think I've eaten. Is that a thing I still do?"
 
@@ -168,15 +168,15 @@ Every screen in the room glitched together, and for half a second all of them sh
 
 Then the mall again. The fountain, the rink, the painters, the coffee machine with its light on.
 
-Jordan's knees went again, and Burt took the weight. He did not lift so much as gather; he got one arm round under Jordan's shoulders and held them up the way he would carry a bag of groceries up a flight of steps, high against his chest so nothing fell out of the top.
+Jordan's knees went again, and Burt took the weight. He did not lift so much as gather; he got one arm round under Jordan's shoulders and held him up the way he would carry a bag of groceries up a flight of steps, high against his chest so nothing fell out of the top.
 
 Djan took the rope off his shoulder, ran a loop round Jordan's waist, and tied it off to Burt's belt, because the floor had wanted Jordan's feet once already.
 
 Nobody said anything about it. Burt looked down at the knot and nodded.
 
-"Okay," Jordan said. Steadier. They found the floor with both feet and stood on it. "Okay. I'm here. I'm really here."
+"Okay," Jordan said. Steadier. He found the floor with both feet and stood on it. "Okay. I'm here. I'm really here."
 
-They looked up at the man holding them, the hard hat and the backpack and the face that had been counting heads since the parking lot.
+He looked up at the man holding him, the hard hat and the backpack and the face that had been counting heads since the parking lot.
 
 "Hi, Burt."
 
